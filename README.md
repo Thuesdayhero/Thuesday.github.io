@@ -1,1 +1,1 @@
-# Thuesday.github.io
+# Thuesdayhero.github.io
